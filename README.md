@@ -1,0 +1,1 @@
+## Variety of apps built with different languages and tech
